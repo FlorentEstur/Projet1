@@ -1,1 +1,0 @@
-ma classe produit
